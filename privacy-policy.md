@@ -8,6 +8,7 @@ You will be notified of any Privacy Policy changes:
       • On our Privacy Policy Page
 Can change your address information:
       • By calling us
+      
 No information is collected other than what you enter with your hand only and after submitting the request and delivering it to the customer, the information will be deleted by the officials
 
 Contact Us:
