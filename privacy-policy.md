@@ -15,7 +15,7 @@ Contact Us:
 If there are any questions regarding this privacy policy, you may contact us using the information below.
 
 By email: bahaaox@gmail.com
-Hextic Store
+Raez Store
 
 Ramallah, Westbank
 
